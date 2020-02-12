@@ -1,7 +1,7 @@
 # towercourse
-dude
+dud
 spt
-lol
+take away
 
 
 hey
